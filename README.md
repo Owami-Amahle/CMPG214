@@ -1,0 +1,1 @@
+I am Owami Mtshali, currently erolled at North West University ,doing a Bsc.IT degree.This assignment is about creating a logo about yourself.The objective is to have someone look at it and get a glimpse of who you are just be soley looking at it.
